@@ -1,2 +1,2 @@
-# Wafysolutions
-This is my Company Website
+# Wafula James
+Find my Works Here
